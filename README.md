@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-HEGR950506HTCRMD05
+HEGR950506HTCRMD05
